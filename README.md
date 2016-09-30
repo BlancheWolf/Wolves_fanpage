@@ -12,3 +12,7 @@ Ben je het bijna gebiedend aan het gillen dan vatten ze dit op als 'Levensgevaar
 Pas dus heeeel goed op hoe je het zegt en hoe je erbij staat
 
 Als je als onderdanige wolf een hogergeplaatste wolf begroet doe je dit:
+- Lage houding
+- Staart tussen de poten
+- Zacht gejank
+- Vlak langs de staart kijken
