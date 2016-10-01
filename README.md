@@ -23,3 +23,13 @@ Als je een wilde wolf tegenkomt moet je vooral niet proberen hem in de ogen te k
 - Vlak langs de staart kijken
 - Geen oogcontact zoeken
 - Blijf stil staan en maak geen plotselinge bewegingen
+
+Natuurlijk huilen wolven om te comminuceren over grote afstanden, dit doen ze met tonen en lengte
+- Hoe hoger de toon, hoe meer haast er achter het bericht zit
+
+
+
+Wist je dat...
+- Wolven altijd samen huilen voor en na de jacht?
+- Een roedel meestal bestaat uit vader, moeder en al hun welpen?
+- Soms gaat een wolf uit de roedel op onderzoek uit en zoekt een partner in de hoop dat ze zelf een roedel kunnen stichten?
