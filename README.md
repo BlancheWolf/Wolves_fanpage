@@ -8,7 +8,7 @@ Basisdingetjes die je moet weten voordat je naar wolven toestapt om iets te prob
 'Oerf' is gevaar, gebruik dit alleen in geval van nood. Het maakt ook uit hoe je het zegt:
 - Ontspannen houding 'Oerf' = 'Pas op' Word vooral gebruikt voor de jacht
 - Gespannen houding 'Oerf' = 'Gevaar, pas op' 
-- Keihard 'Oerf'schreeuwen = 'Levensgevaarlijk, kom onmiddelijk terug!!!
+- Keihard 'Oerf' schreeuwen = 'Levensgevaarlijk, kom onmiddelijk terug!!!
 
 Pas dus heeeel goed op hoe je het zegt en hoe je erbij staat
 
