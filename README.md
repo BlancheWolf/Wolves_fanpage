@@ -1,3 +1,4 @@
+
 # Wolves_fanpage
 
 Een pagina speciaal voor wolven.
@@ -33,3 +34,4 @@ Wist je dat...
 - Wolven altijd samen huilen voor en na de jacht?
 - Een roedel meestal bestaat uit vader, moeder en al hun welpen?
 - Soms gaat een wolf uit de roedel op onderzoek uit en zoekt een partner in de hoop dat ze zelf een roedel kunnen stichten?
+- Wolven in bijna alle kleuren kunnen voorkomen?
