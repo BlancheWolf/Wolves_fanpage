@@ -28,10 +28,11 @@ Als je een wilde wolf tegenkomt moet je vooral niet proberen hem in de ogen te k
 Natuurlijk huilen wolven om te comminuceren over grote afstanden, dit doen ze met tonen en lengte
 - Hoe hoger de toon, hoe meer haast er achter het bericht zit
 
+Als je in de wolventaal wilt zeggen 'Ik begrijp je niet' doe je dit door je hoofd/kop schuin te houden
 
+Wil je laten zien dat iets je spijt, ga je in een lage houding staan, met de ogen op de grond, staart tussen de poten en een zacht gejank
 
 Wist je dat...
 - Wolven altijd samen huilen voor en na de jacht?
 - Een roedel meestal bestaat uit vader, moeder en al hun welpen?
-- Een wolf uit de roedel soms op onderzoek uit gaat en zoekt een partner in de hoop dat ze zelf een roedel kunnen stichten?
 - Wolven in bijna alle kleuren kunnen voorkomen?
