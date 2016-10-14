@@ -33,5 +33,5 @@ Natuurlijk huilen wolven om te comminuceren over grote afstanden, dit doen ze me
 Wist je dat...
 - Wolven altijd samen huilen voor en na de jacht?
 - Een roedel meestal bestaat uit vader, moeder en al hun welpen?
-- Soms gaat een wolf uit de roedel op onderzoek uit en zoekt een partner in de hoop dat ze zelf een roedel kunnen stichten?
+- Een wolf uit de roedel soms op onderzoek uit gaat en zoekt een partner in de hoop dat ze zelf een roedel kunnen stichten?
 - Wolven in bijna alle kleuren kunnen voorkomen?
