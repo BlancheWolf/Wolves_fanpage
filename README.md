@@ -1,5 +1,5 @@
 
-# Wolves_fanpage
+# Wolves in my Heart
 
 Een pagina speciaal voor wolven.
 De wolventaal word hier nauwkeurig uitgelegd.
