@@ -4,6 +4,8 @@
 Een pagina speciaal voor wolven.
 De wolventaal word hier nauwkeurig uitgelegd.
 
+![Wolves are the best] (  CuteFamily.jpg )
+
 Basisdingetjes die je moet weten voordat je naar wolven toestapt om iets te proberen:
 
 'Oerf' is gevaar, gebruik dit alleen in geval van nood. Het maakt ook uit hoe je het zegt:
