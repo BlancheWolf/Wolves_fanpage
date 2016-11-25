@@ -40,3 +40,4 @@ Wist je dat...
 - Wolven altijd samen huilen voor en na de jacht?
 - Een roedel meestal bestaat uit vader, moeder en al hun welpen?
 - Wolven in bijna alle kleuren kunnen voorkomen?
+- Wolven op de jacht in de sneeuw huilen? Dat dempt het geluid zodat het lijkt alsof ze verder weg zijn
