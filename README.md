@@ -5,7 +5,7 @@ De wolventaal word hier nauwkeurig uitgelegd.
 
 ![Wolves are the best] (  CuteFamily.jpg )
 
-Basisdingetjes die je moet weten voordat je naar wolven toestapt om iets te proberen:''
+Basisdingetjes die je moet weten voordat je naar wolven toestapt om iets te proberen:
 
 Wolven zijn geen bloeddorstige moordenaars, het zijn best vriendelijke wezens die veel om hun familie geven
 Hun familie is alles voor hen, ze zullen ook niet twijfelen bij het kiezen tussen het leven van een vriend of hun eigen leven...
