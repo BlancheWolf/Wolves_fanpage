@@ -7,10 +7,10 @@ De wolventaal word hier nauwkeurig uitgelegd.
 
 Basisdingetjes die je moet weten voordat je naar wolven toestapt om iets te proberen:
 
-Wolven zijn geen bloeddorstige moordenaars, het zijn best vriendelijke wezens die veel om hun familie geven
+Wolven zijn geen bloeddorstige moordenaars, het zijn best vriendelijke wezens die veel om hun familie geven.
 Hun familie is alles voor hen, ze zullen ook niet twijfelen bij het kiezen tussen het leven van een vriend of hun eigen leven...
 
-'Oerf' is gevaar, gebruik dit alleen in geval van nood. Het maakt ook uit hoe je het zegt:
+'Oerf' betekend gevaar, gebruik dit alleen in geval van nood. Het maakt ook uit hoe je het zegt:
 - Ontspannen houding 'Oerf' = 'Pas op' Word vooral gebruikt voor de jacht
 - Gespannen houding 'Oerf' = 'Gevaar, pas op' 
 - Keihard 'Oerf' schreeuwen = 'Levensgevaarlijk, kom onmiddelijk terug!!!'
@@ -41,3 +41,5 @@ Wist je dat...
 - Een roedel meestal bestaat uit vader, moeder en al hun welpen?
 - Wolven in bijna alle kleuren kunnen voorkomen?
 - Wolven op de jacht in de sneeuw huilen? Dat dempt het geluid zodat het lijkt alsof ze verder weg zijn
+- Als wolven op hun vacht ademen, die niet bevriest?
+- Wolven temperaturen kunnen overleven van -40?
